@@ -8,7 +8,7 @@ SOCIAL
 https://www.instagram.com/ceothanhnamamory
 https://www.pinterest.com/ceothanhnamamory
 https://www.twitch.tv/ceothanhnamamory
-https://twitter.com/thanhnamamor
+https://twitter.com/ceothanhnamamor
 https://www.youtube.com/@ceothanhnamamory
 https://gravatar.com/ceothanhnamamory
 https://www.reddit.com/user/ceothanhnamamory
