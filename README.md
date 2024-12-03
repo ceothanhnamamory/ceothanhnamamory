@@ -1,9 +1,8 @@
-
 CEO Thành Nam Amory của DF999 tên thật là Phan Thành Nam (sinh ngày 15/10/1996) từng theo học tại trường đại học kinh doanh tài chính thuộc top đầu thế giới tại Mỹ. Sau khi hoàn thiện việc học với tấm bằng cử nhân, anh đã từng có thời gian làm tại tập đoàn tài chính.
 Địa chỉ : 18A Đường Thới Hòa, Vĩnh Lộc A, Bình Chánh, Hồ Chí Minh, Việt Nam
 Hotline : 0945213695
 Gmail: df999vnxyz@gmail.com
-Website : https://df999vn.xyz/
+Website : https://df999vn.xyz/ceo-thanh-nam-amory-df999
 SOCIAL
 https://www.instagram.com/ceothanhnamamory
 https://www.pinterest.com/ceothanhnamamory
